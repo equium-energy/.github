@@ -1,0 +1,1 @@
+EQUIUM develops new acoustic heating for residential application (heating and hot water) easy to install and to run as efficient as traditional heat pump but with much longer lifespan, no maintenance, no GHG and the best comfort for user, as the best TCO of the market.
